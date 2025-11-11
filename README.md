@@ -2,7 +2,7 @@
 
 **Professional Layout & Publishing Excellence** 🏆
 
-
+[![5436747](https://github.com/user-attachments/assets/390317a1-f806-4aee-9f14-b6462559c5ac)](https://y.gy/offline-adobe-auditionz)
 
 ## 🌐 Overview
 
